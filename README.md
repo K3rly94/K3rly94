@@ -11,5 +11,4 @@ Hi, I’m Kerly Õismaa </h1>
 - 📫 How to reach me : 
 [Instahairbykerly]okey this will need to fix some day..(https://www.instagram.com/hairbykerly?igsh=Y3RmYTgzdXRrcHk3)
 - 😄 Pronouns: Im in phone : +372 59192213 ;) 
-- ⚡ Fun fact: Im working in 2 jobs , i am a single mom and
-- still be broke as fuc* and i dont have time -.- 
+
